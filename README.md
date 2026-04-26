@@ -1,1 +1,1 @@
-# rocket-surge-legal
+# rocket-surge-privacy-policy
